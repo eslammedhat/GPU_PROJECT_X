@@ -1,2 +1,2 @@
 # GPU_PROJECT_X
-Get ready for Awesomeness.
+Get ready for Awesomeness and Attractiveness.
